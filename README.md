@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lprideaux
+- 🌱 I’m currently studying for a computing degree with the Open University
